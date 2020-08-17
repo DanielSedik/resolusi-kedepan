@@ -1,0 +1,2 @@
+# resulisi-kedepan
+Terus belajar
