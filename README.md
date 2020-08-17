@@ -1,2 +1,2 @@
-# resulisi-kedepan
+# resolusi-kedepan
 Terus belajar
